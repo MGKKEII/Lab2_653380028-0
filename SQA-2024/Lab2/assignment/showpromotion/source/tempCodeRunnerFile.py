@@ -1,0 +1,1 @@
+Free ice cream cone = 1 and Free chocolate cake = 1
